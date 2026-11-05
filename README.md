@@ -1,2 +1,2 @@
 # Dignity-by-Design-The-Physical-Adaptive-AI-Ecosystem
-https://notebook.google.com/notebook/302a912d-83d9-4121-99ac-8cc5f85db359?authuser=2
+https://notebook.google.com/notebook/f60081fa-c174-4a2d-b2da-385165ebf82d?authuser=2
